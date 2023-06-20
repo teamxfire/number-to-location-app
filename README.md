@@ -19,8 +19,8 @@ Remember :- This App Made For Educational Purpose Only. Don't Use Any Iligel Act
 
  - USER SIM TOWER ADDRESS CRACK 
  - Easy to use 
- - USER SIM INFO
- - MAP LOCATION 
+ - USER SIM INFO CRACK
+ - MAP LOCATION CRACK
  - NO VIRUS IN APP
 
 
